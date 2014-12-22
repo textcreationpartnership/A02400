@@ -35,9 +35,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The Romish chaine. By Edmund Gurnay, parson of HarpleyGurnay, Edmund, d. 1648.1624Approx. 88 KB of X
+
+1. TO THE RIGHT Honourable, the Lords, Knights, Burgeſſes, and what other Suffragans, in the high Court of Parliament.
+
+1. DEDICATED vnto Sir ROGER TOVVNSEND; Knight-Baronet:
+
 #####Body#####
-The Romish chaine. By Edmund Gurnay, parson of HarpleyGurnay, Edmund, d. 1648.1624Approx. 88 KB of X
+
+1. THE ROMISH CHAINE,
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
